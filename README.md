@@ -1,4 +1,4 @@
-## 👾 Hi, I’m Han.
+## 👾 Hi, I’m Ranna.
 - 🎮 I’m interested in learn, games, work, read and music.
 - 📚 I’m currently learning HTML, CSS and JavaScript.
 - 🏳️‍🌈 I’m LGBTQIA+
