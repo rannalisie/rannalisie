@@ -1,5 +1,5 @@
 ## 👾 Hi, I’m Ranna.
-- 🎮 I’m interested in learn, games, work, read and music.
+- 🎮 I’m interested in books, games, work, read and music.
 - 📚 I’m currently learning HTML, CSS and JavaScript.
 - 🏳️‍🌈 I’m LGBTQIA+
 - 🧑🏻‍💻 Pronouns: She/Her
